@@ -1,2 +1,1 @@
-zô nè
-ssdvdfgfnj
+vô nè mấy thằng ngu
